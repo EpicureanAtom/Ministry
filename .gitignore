@@ -1,2 +1,6 @@
 .obsidian/
 .DS_Store
+
+git init
+git add .
+git commit -m "Initial commit"
