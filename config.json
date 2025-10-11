@@ -1,3 +1,7 @@
 {
-  "showSidebar": false
+  "showSidebar": false,
+  "themeConfig": {
+    "navbar": false
+  }
 }
+
