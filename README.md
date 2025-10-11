@@ -1,1 +1,1 @@
-Go to the [Directory](/@EpicureanAtom/RedditObservatory/Directory/Directory) to navigate this website
+Go to the [Directory](/Directory/Directory) to navigate this website
