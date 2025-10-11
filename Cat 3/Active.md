@@ -39,3 +39,5 @@ r/SalishMatterFP - Minor abuse, predatory behaviour
 r/salishmatter20 - Minor abuse, predatory behaviour
 
 r/CreamTheRabbitRefuge - Minor abuse, sexual or suggestive
+
+Ass
