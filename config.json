@@ -1,9 +1,3 @@
 {
   "showSidebar": false
-  export default {
-  themeConfig: {
-    navbar: false, // hides the whole top menu
-  },
-}
-
 }
