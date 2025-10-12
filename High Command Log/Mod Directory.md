@@ -1,3 +1,0 @@
-[Back](/)
-
-[Responses to Mod Mail](/High+Command+Log/Recker)
