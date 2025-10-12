@@ -1,2 +1,2 @@
-[HCL(/Log/Mod+Mail)
+[High Command Log](/Log/Mod+Mail)
 
