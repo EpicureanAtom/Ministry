@@ -1,1 +1,1 @@
-[Responses to MOD Mail](High+Command+Log/Mod+Directory)
+[MOD Mail](High+Command+Log/Mod+Directory)
