@@ -1,2 +1,2 @@
-[MOD Mail](/Log/Mod+Mail)
+[High Command Log(/Log/Mod+Mail)
 
