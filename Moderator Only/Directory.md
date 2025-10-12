@@ -1,2 +1,2 @@
-[MOD Mail](High+Command+Log/Mod+Directory)
+[MOD Mail](/Log/Mod+Directory)
 
