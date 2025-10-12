@@ -1,3 +1,3 @@
 [Back](/Moderator+Only/Mod+Directory)
 
-[Responses to Mod Mail](/Log/Recker)
+[Recker's responses](/Log/Recker)
