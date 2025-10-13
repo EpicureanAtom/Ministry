@@ -1,4 +1,3 @@
-25
 
 r/martinalucena13 - Minor abuse, predatory behaviour
 
