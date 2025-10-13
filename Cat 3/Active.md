@@ -1,17 +1,9 @@
 [Needs elaboration](/Needs+elaboration/Active+Cat+3)
 
-16
-
-NSFW
-🚨 CATEGORY 3 MEGATHREAD 10/4/2025🚨
-level 3 subreddit - a call to action
-This is an official Category 3 Call to Arms.
-All available Subdivers and Ministers are expected to respond if able.
-
 Category 3 subreddits are direct violations of Reddit’s TOS and are often illegal.
 Our duty is to report responsibly.
 
-These have already been Dived and Confirmed TOS violations. Subdivers, concerned Redditors, and people passing through are urged to fill out a report or two to help make Reddit safer.
+These have already been Investigated and are confirmed TOS violations. Concerned redditors, and people passing through are urged to fill out a report or two to help make Reddit safer.
 
 Reporting Protocol
 Go to Reddit’s [report page].
