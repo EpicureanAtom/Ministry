@@ -1,6 +1,6 @@
 Responded to mod mail from [u/Calm_Preperation_2993.](/Anonymous+Reporters/Revengepornn)
 
-subreddit: r/Revengepornn
+Subreddit: r/Revengepornn
 
 Mod: u/Longjumping_Sleeep_48
 Posts: No posts yet.
