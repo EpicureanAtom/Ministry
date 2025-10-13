@@ -1,4 +1,3 @@
-22
 
 r/martinita_lucena - Minor abuse, predatory behaviour
 
