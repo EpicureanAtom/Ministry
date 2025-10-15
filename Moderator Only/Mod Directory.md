@@ -5,6 +5,6 @@
 [Discord](/Discord/Discord+Directory)
 
 [Users](/Ministryofredditing/Users)                                                                         
-[Dead Accounts](/Dead/Dead+Accounts)                                                        
+[Dead Accounts](/Dead/DeadAccounts)                                                        
 [Inactive Accounts](/Dead/Inactive)                                                   
 [Rule Violations](/Dead/Rule+Violation)                                                        
