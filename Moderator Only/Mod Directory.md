@@ -9,4 +9,4 @@
 [Inactive Accounts](/Dead/Inactive)                                                   
 [Rule Violations](/Dead/Rule+Violation)                                                        
 
-[Reddit Directory](Reddit%20Directory.md)
+[Reddit Directory](/Reddit/Reddit+Directory)
