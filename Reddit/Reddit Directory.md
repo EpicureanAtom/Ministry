@@ -1,5 +1,5 @@
 [Eyebleach](/Reddit/Eyebleach)                                                                 
 
-[Personal investigation](Personal%20Investigation.md)                                           [Personal reports](Personal%20Reports.md)
+[Personal investigation](/Reddit/Personal+Investigation)                                           [Personal reports](/Reddit/Personal+Reports)
 
 If you want to see a list of reports, refer to the [Normal Directory](/Directory/Directory).
