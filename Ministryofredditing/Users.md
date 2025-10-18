@@ -1,13 +1,14 @@
-[In the discord](/Discord/Users)
+[In the discord](/Discord/Users)                                                           
+[Reporters](/Reporters/Reporters)
 
 Generals
 
-[Crabtickler9000](/Users/Crabtickler9000) (Former General and creator of the Ministry)
-[AngryDesertPhrog](/Users/AngryDesertPhrog) (Current General and MOD)
+[Crabtickler9000](/Users/Crabtickler9000) (Former General and creator of the Ministry)                                                        
+[AngryDesertPhrog](/Users/AngryDesertPhrog) (Current General and MOD) 
 
 Lieutenant
 
-the_combine_. ([Dead account](/Dead/Dead+Accounts), no details)
+the_combine_. ([Dead account](/Dead/Dead+Accounts), no details)         
 
 Subdivers
 [Eisner_Hero](/Users/Eisner_Hero)                                                             
@@ -16,21 +17,39 @@ Subdivers
 [kosha227](/Users/kosha227) ([Inactive](Dead/Inactive))                                               
 [Six__13_](/Users/Six__13_) ([violated a rule](Dead/Rule+Violation))                                       
 [cgyts](/Users/cgyts) ([Inactive](Dead/Inactive))                                           
-[dj_elektriczny](/Users/dj_elektriczny) ([Inactive](Dead/Inactive)) 
-[erinmikail](/Users/erinmikail) ([Inactive](Dead/Inactive)) 
+[dj_elektriczny](/Users/dj_elektriczny) ([Inactive](Dead/Inactive))                                         
+[erinmikail](/Users/erinmikail) ([Inactive](Dead/Inactive))                                                
+[godlys575](/Users/godlys575) ([Inactive](/Dead/Inactive))                                              
+[ThomasOG73](/Users/ThomasOG73)                                                          
+[switch_case](/Users/switch_case)                                                             
+[Coolgame01NZ](/Users/Coolgame01NZ) ([Inactive](/Dead/Inactive))                                     
+[phager76](/Users/phager76) ([Inactive](/Dead/Inactive))                                                
+[BananaSpider55](/Users/BananaSpider55) ([Inactive](/Dead/Inactive))                                    
+[ThatOneNutshel](/Users/ThatOneNutshell) ([Inactive](/Dead/Inactive))                                    
+
+ 
+ 
 
 Ministers
-[Thuselessone](/Users/Thuselessone) 
+[Thuselessone](/Users/Thuselessone)                                                          
+[Jellibean_5131](/Users/Jellibean_5131)                                                        
 
 No role
 
 [Pcfreak8000](/Users/Pcfreak8000) ([Dead account](/Dead/Dead+Accounts))                                
 [Earl_E_Aypecks](/Users/Earl_E_Aypecks) ([Dead account](/Dead/Dead+Accounts))                           shutup9882                                                             
 SuperMANsDEAD                                                   
-coffinsec
-AG_Adams
-heiskill
-Erok
-snowglyphs (there is a reddit account with that name but no connection to the ministry).
-brownwyn
-__exile__
+coffinsec                                                                  
+AG_Adams                                                               
+heiskill                                                                      
+Erok                                                                           
+snowglyphs (there is a reddit account with that name but no connection to the ministry).  
+brownwyn                                                                
+__exile__                                                                          
+Aktresh                                                                    
+NebulousIris ([Deleted Account](/Dead/Dead+Accounts))                           
+FSH Thomas                                                           
+toast_is_good                                                          
+
+ 
+
