@@ -27,7 +27,6 @@ Subdivers
 [dj_elektriczny](/Users/dj_elektriczny) ([Inactive](Dead/Inactive))                                         
 [erinmikail](/Users/erinmikail) ([Inactive](Dead/Inactive))                                                
 [godlys575](/Users/godlys575) ([Inactive](/Dead/Inactive))                                              
-[ThomasOG73](/Users/ThomasOG73)                                                          
 [switch_case](/Users/switch_case)                                                             
 [Coolgame01NZ](/Users/Coolgame01NZ) ([Inactive](/Dead/Inactive))                                     
 [phager76](/Users/phager76) ([Inactive](/Dead/Inactive))                                                
