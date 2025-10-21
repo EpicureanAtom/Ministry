@@ -1,4 +1,3 @@
-[In the discord](/Discord/Users)  (incomplete)                                  
 [Reporters](/Reporters/Reporters)  (incomplete)                                                               
 
 Generals                                                                   
