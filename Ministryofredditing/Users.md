@@ -61,18 +61,17 @@ Far-dog
 [Ronevvi_Kitty](/Users/Ronevvi_Kitty) ([Inactive](/Dead/Inactive))                                         
 [Fickle-Cress-4116](/Users/Fickle-Cress-4116) ([Inactive](/Dead/Inactive))                                 
 [QuixoticArbiter](/Users/QuixoticArbiter)                                                        
+[Reckrrr](/Usera/Reckrrr)                                                                      
 
 Archon                                                                      
 
-[Reckrrr](/Usera/Reckrrr)                                                                      
-
+[Thuselessone](/Users/Thuselessone)                                                           
 Greater Minister                                                      
 
 [profjohnharney](/Users/profjohnharney)                                                        
 [Cricketwingcove144](/Users/Cricketwingcove144)                                               
 
-Ministers                                                                  
-[Thuselessone](/Users/Thuselessone)                                                          
+Ministers                                                                                        
 [Jellibean_5131](/Users/Jellibean_5131)                                                        
 [Due_BlackBerry_6776](/Users/Due_BlackBerry_6776)
 [XCh4rr0X](/Users/XCh4rr0X)                                                                  
