@@ -1,5 +1,5 @@
 [fuck_peeps_not_sheeps](/Users/fuck_peeps_not_sheeps) (Subdiver Captain)
-[Pcfreak8000](/Users/Pcfreak8000) ([Dead account](/Dead/Dead+Accounts)
+[Pcfreak8000](/Users/Pcfreak8000) ([Dead account](/Dead/Dead+Accounts))
 [Thuselessone](/Users/Thuselessone) (Minister)
 [kosha227](/Users/kosha227) (Subdiver, [inactive](/Dead/Inactive))
 Unknown (Jackody_ doesn't have an associated reddit account).
