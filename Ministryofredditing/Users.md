@@ -1,9 +1,18 @@
-[Reporters](/Reporters/Reporters)  (incomplete)                                                               
+[Reporters](/Dive/Dives)  (incomplete)                                                               
 
-Generals                                                                   
+Prime                                                                   
 
-[Crabtickler9000](/Users/Crabtickler9000) (Former General and creator of the Ministry)                                                        
-[AngryDesertPhrog](/Users/AngryDesertPhrog) (Current General and MOD) 
+[Crabtickler9000](/Users/Crabtickler9000) (Former Prime and creator of the Ministry)                                                        
+[AngryDesertPhrog](/Users/AngryDesertPhrog) (Current Prime and MOD) 
+
+General:
+
+[Reckrrr](/Users/Reckrrr)
+
+Bookkeeper
+
+I am the Bookkeeper
+[Personal investigation](/Reddit/Personal+Investigation)                                           [Personal reports](/Reddit/Personal+Reports)                                                     
 
 Lieutenant                                                                
 
@@ -22,7 +31,6 @@ Subdivers
 [godlys575](/Users/godlys575)                                                                
 [Agile_Channel_853](/Users/Agile_Channel_853) ([Dead account](/Dead/Dead+Accounts))                    
 [kosha227](/Users/kosha227) ([Inactive](Dead/Inactive))                                               
-[Six__13_](/Users/Six__13_) ([violated a rule](Dead/Rule+Violation))                                       
 [cgyts](/Users/cgyts) ([Inactive](Dead/Inactive))                                           
 [dj_elektriczny](/Users/dj_elektriczny) ([Inactive](Dead/Inactive))                                         
 [erinmikail](/Users/erinmikail) ([Inactive](Dead/Inactive))                                                
@@ -36,7 +44,6 @@ Subdivers
 [TubbieTubz](/Users/TubbieTubz) ([Inactive](/Dead/Inactive))                                            
 Yon                                                                            
 [Salty-City-7187](/Users/Salty-City-7187)                                                        
-[QueenSquidly14](/Users/QueenSquidly14) ([Rule Violation](/Dead/Rule+Violation))                         
 [GubyNey](/Users/GubyNey)                                                                   
 Luisa_Valeee                                                           
 (love heart emoji)                                                    
@@ -60,8 +67,7 @@ val                                                                             
 Far-dog                                                                     
 [Ronevvi_Kitty](/Users/Ronevvi_Kitty) ([Inactive](/Dead/Inactive))                                         
 [Fickle-Cress-4116](/Users/Fickle-Cress-4116) ([Inactive](/Dead/Inactive))                                 
-[QuixoticArbiter](/Users/QuixoticArbiter)                                                        
-[Reckrrr](/Usera/Reckrrr)                                                                      
+[QuixoticArbiter](/Users/QuixoticArbiter)                                                                                         
 
 Archon                                                                      
 
@@ -81,12 +87,13 @@ Ministers
 [crazy_fuel253](/Users/crazy_fuel253)                                                          
 [Geo-Art1](/Users/Geo-Art1)                                                                   
 [Asleep_News1625](/Users/Asleep_News1625)                                                  
- 
+[Six__13_](/Users/Six__13_) ([violated a rule](Dead/Rule+Violation))                                       
 
 Lesser Ministers                                                     
 
 [Squaremarlin524](/Users/Squaremarlin524)                                                    
 Grayson
+[QueenSquidly14](/Users/QueenSquidly14) ([Rule Violation](/Dead/Rule+Violation))                         
 
 No politics pics                                                       
 
