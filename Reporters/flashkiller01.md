@@ -13,11 +13,9 @@ Now if I may I'll go indulge in my pillow to forget those greasy persons in comm
 
 Subdiver u/flashkiller01 is reporting after resurfacing.
 
-
+r/yosoyanix
 
 Subdiver u/flashkiller01 is preparing to dive in order to provide precision markers for artillery
-
-r/yosoyanix
 
 Inapropriate naming of posts, sexually-suggestive mediafiles, degrading comments, trading proposals of csam via DMs in comments. Basically all the posts are as such.
 
@@ -62,10 +60,6 @@ Comments seem wiped, maybe that's the result of subdivers' activity.
 r/fer\_sasse
 
 Seem okay
-
-r/LuisanaLupilato2022\_2
-
-This sub is no more. Congratulations!
 
 r/bellaalbaneseee
 
