@@ -3,7 +3,7 @@ r/feederismteenschat
 r/Anfisaria Banned
 r/ameliawucrzy
 r/lily_katchman
-r/Raegan RevordVerse
+r/RaeganRevordVerse
 r/raeganrevordmissy
 r/raeganrevord20
 r/silvanarebolloo_
