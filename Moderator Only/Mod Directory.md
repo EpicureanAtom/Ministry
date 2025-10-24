@@ -1,7 +1,7 @@
 [Normal Directory](/Directory/Directory)                 
 
 [High Command Log](/Log/Mod+Mail)                                               
-[Name registry](/Ministryofredditing/Users)                                                          
+[Name registry](/Ministryofredditing/Users )                                                          
 [Discord](/Discord/Discord+Directory)
 
 [Users](/Ministryofredditing/Users)                                                                         
