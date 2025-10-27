@@ -1,13 +1,6 @@
-
-r/martinalucena13 - Minor abuse, predatory behaviour
-
-r/Baddies_net - Minor abuse, predatory behaviour
-
 r/silvanarebolloo_  - Minor abuse, predatorybehaviour
 
 r/polikarpovafamilly - Minor abuse, predatory behaviour
-
-r/SalishMatterFP - Minor abuse, predatory behaviour
 
 r/salishmatter20 - Minor abuse, predatory behaviour
 
