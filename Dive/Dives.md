@@ -1,4 +1,6 @@
 [Name registry](/Ministryofredditing/Users )                                                          
+[Active Cat 3](/Cat+3/Active)                                                             
+[Deleted Cat 3](/Cat+3/Deleted)                                                           
 
 Cat 3 Megathread 10/4/2025 (Froggie)             
 
@@ -45,9 +47,8 @@ u/Eisner_Hero
 [FatePrismalllya](/Subs2/FatePrismalllya)                                                       
 
 u/EpicureanAtom                                                                                                   
-
 [Previous Reports](/Reporters/EpicureanAtom) (Some elaborated on in the Megathread by Froggie, Recker working on the others).                                                              
-[Full Reports](/Reddit/Personal+Reports) (Only on the website)                       
+[Full Reports](/1/Personal+Reports) (Only on the website)                       
 
 u/flashkiller01                                                         
 
@@ -95,7 +96,7 @@ u/QueenSquidly14 (former subdiver)
 
 u/Remarkable-Cow-6491                                      
 
-[usedandabusedteens, FuckToyfactory, CravingBadMan, FemaleInferiorityCap](4SubsR)
+[usedandabusedteens, FuckToyfactory, CravingBadMan, FemaleInferiorityCap](4SubsR.md)
 [Baddies_net](/Subs2/Baddies_net)                                                             
 
 u/Salty-City-7187                                                    
