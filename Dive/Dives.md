@@ -37,7 +37,8 @@ u/AngryDesertPhrog
 Updated                                                                    
 [Socippo](/Subs/Socippo)                                                                    
 [NianaSexy](/Subs/NianaSexy)                                                                
-[Karinakurzawapics](/Subs/Karinakurzawapics)                                                  
+[Karinakurzawapics](/Subs/Karinakurzawapics)                                                 
+
 u/BananaSpider55                                                 
 
 [DPH](/Subs2/DPH)                                                                           
@@ -55,7 +56,7 @@ u/Eisner_Hero
 [SmallAndCute](/Subs2/SmallAndCute)                                                         
 [FatePrismalllya](/Subs2/FatePrismalllya)                                                       
 
-u/EpicureanAtom                                                                                                   
+u/EpicureanAtom                                                                                                    
 [Previous Reports](/Reporters/EpicureanAtom) (Some elaborated on in the Megathread by Froggie, Recker working on the others).                                                              
 [Full Reports](/1/Personal+Reports) (Only on the website)                       
 
