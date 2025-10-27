@@ -9,6 +9,8 @@ r/goreandother - Threatening violence
 
 r/salishmatter123 - Minor abuse, predatory behaviour
 
+r/SalishMatterFP - Minor abuse, predatory behaviour
+
 r/CreamTheRabbitRefuge - Minor abuse, sexual or suggestive
 
 r/ladyabril16 - Minor abuse, predatory behaviour
@@ -44,3 +46,11 @@ r/Animalpenis_  - Beastiality
 r/5169FL - Minor Abuse, predatory behaviour
 
 r/aasaliraniizahide
+
+r/Baddies_net - Minor abuse, predatory behaviour
+
+r/martinalucena13 - Minor abuse, predatory behaviour
+
+[r/La_Putita_De_Alexity](/Subs/La_Putita_De_Alexity)
+
+[r/teenfeedersandfeedees](/Subs/teenfeedersandfeedees)
