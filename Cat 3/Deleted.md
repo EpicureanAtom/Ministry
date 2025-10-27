@@ -54,3 +54,7 @@ r/martinalucena13 - Minor abuse, predatory behaviour
 [r/La_Putita_De_Alexity](/Subs/La_Putita_De_Alexity)
 
 [r/teenfeedersandfeedees](/Subs/teenfeedersandfeedees)
+
+r/cuteandfunnyuwu - all lolicon material that violated TOS.
+
+r/elsililil - (subreddit for Esli, I see a lot of the same Telegram groups, one discord server was for "cheese pizza"). That Discord server has since been marked by discord.
