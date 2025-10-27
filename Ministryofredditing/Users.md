@@ -12,7 +12,7 @@ General:
 Bookkeeper
 
 I am the Bookkeeper
-[Personal investigation](/Reddit/Personal+Investigation)                                           [Personal reports](/Reddit/Personal+Reports)                                                     
+[Personal reports](/Reddit/Personal+Reports)                                                     
 
 Lieutenant                                                                
 
