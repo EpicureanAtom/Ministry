@@ -1,0 +1,3 @@
+The girl in this subreddit is 13 years old.
+
+Extra details: u/Clutch_Mythical (one of the moderators) is active in the subreddit with a lot of posts, he runs some groups on Session and Telegram. Couldn't determine what kind of content he has. The other moderator (u/kamrianri) is less active. There are also a lot of other users talking about "teens" and sharing Telegram/Session groups. The person who the subreddit is dedicated to is called Tori Deasy, despite only turning 18 on the 14th of August, the subreddit goes back several months. A lot of the first posts also request the "Esli monkey video." Which is a video of an Esli look-alike masturbating on the monkey app. Esli is 14 (13 at the time of that video).
