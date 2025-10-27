@@ -23,9 +23,7 @@ I apologize for formatting errors, we are trying to give more detail on each sub
 -- WARNING --
 
 Some of the reports do contain actual copy-pasted post titles and comments from these subs. This post is only for 18+ individuals to help in reporting these subs. All of these subs have been reported by myself, my timestamps are stated below each report as well as the actions I took.
-
-
-[r/teenfeedersandfeedees](/Subs/teenfeedersandfeedees)                                      
+                                      
 [r/ayatanjalix](/Subs/ayatanjalix)                                                             
 [r/chelseathe](/Subs/chelseathe)                                                            
 [r/sunstokes](/Subs/sunstokes)                                                             
@@ -36,7 +34,6 @@ Some of the reports do contain actual copy-pasted post titles and comments from 
 [r/NianaSexy](/Subs/NianaSexy)                                                             
 [r/socippo](/Subs/socippo)                                                                  
 [r/zhenyak](/Subs/zhenyak)                                                                 
-[r/La_Putita_De_Alexity](/Subs/La_Putita_De_Alexity)                                           
 [r/AlexityForever](/Subs/AlexityForever)                                                       
 [r/AlexityWorld](/Subs/AlexityWorld)                                                         
 [r/Ariancitaaa](/Subs/Ariancitaaa)                                                           
