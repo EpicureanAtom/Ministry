@@ -40,4 +40,6 @@ Some of the reports do contain actual copy-pasted post titles and comments from 
 [r/LuisanaLopilato2002_2](/Subs/LuisanaLopilato2002_2) 
 
 New                                                                           
-[r/txunamy_](/subs/txunamy_)                                                               
+[txunamy_](/subs/txunamy_)                                                               [CleoTarna](/Subs/CleoTarna)                                                                 
+[badmomsandworsemen](/Subs/r/badmomsandworsemen)                                       
+[Tatumbtickred](/Subs/Tatumbtickred)                                                         
