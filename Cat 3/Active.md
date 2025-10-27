@@ -38,3 +38,6 @@ Some of the reports do contain actual copy-pasted post titles and comments from 
 [r/AlexityWorld](/Subs/AlexityWorld)                                                         
 [r/Ariancitaaa](/Subs/Ariancitaaa)                                                           
 [r/LuisanaLopilato2002_2](/Subs/LuisanaLopilato2002_2) 
+
+New                                                                           
+[r/txunamy_](/subs/txunamy_)                                                               
