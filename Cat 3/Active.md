@@ -32,11 +32,7 @@ Some of the reports do contain actual copy-pasted post titles and comments from 
 [r/Eli_Maciel](/Subs/Eli_Maciel)                                                              
 [r/karinakurzawapics](/Subs/karinakurzawapics)                                              
 [r/NianaSexy](/Subs/NianaSexy)                                                             
-[r/socippo](/Subs/socippo)                                                                  
 [r/zhenyak](/Subs/zhenyak)                                                                 
-[r/AlexityForever](/Subs/AlexityForever)                                                       
-[r/AlexityWorld](/Subs/AlexityWorld)                                                         
-[r/Ariancitaaa](/Subs/Ariancitaaa)                                                           
 [r/LuisanaLopilato2002_2](/Subs/LuisanaLopilato2002_2) 
 
 New                                                                           
