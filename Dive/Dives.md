@@ -78,7 +78,7 @@ All need elaboration, some were double reported by me.
 u/godlys575                                                            
 
 [loudhousedark](/Subs2/loudhousedark)                                                        
-[r/OwlHouseAfterDark](/Dives/loudhousedark)                                            
+[r/OwlHouseAfterDark](/Dives/OwlHouseDark)                                            
 
 u/Guby_Ney                                                             
 
