@@ -58,3 +58,19 @@ r/martinalucena13 - Minor abuse, predatory behaviour
 r/cuteandfunnyuwu - all lolicon material that violated TOS.
 
 r/elsililil - (subreddit for Esli, I see a lot of the same Telegram groups, one discord server was for "cheese pizza"). That Discord server has since been marked by discord.
+
+[r/Ariancitaaa](/Subs/Ariancitaaa)                                                          
+
+[r/AlexityForever](/Subs/AlexityForever)                                                       
+
+[r/AlexityWorld](/Subs/AlexityWorld)                                                         
+
+[r/socippo](/Subs/socippo)                                                                  
+
+r/polikarpovafamilly - Minor abuse, predatory behaviour
+
+r/NatalieGrace2008 - (Person is 18 now but pictures were from when she was a minor)
+
+r/NatalieGraceCute - Minor abuse, predatory behaviour
+
+r/raeganrevord20 - Minor abuse, predatory behaviour
