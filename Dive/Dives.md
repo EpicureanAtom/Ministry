@@ -1,16 +1,16 @@
 Cat 3 Megathread 10/4/2025 (Froggie)
 
-[r/teenfeedersandfeedees](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/teenfeedersandfeedees)
-[r/ayatanjalix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/ayatanjalix)
-[r/chelseathe](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/chelseathe)
+[r/teenfeedersandfeedees](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/teenfeedersandfeedees)
+[r/ayatanjalix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ayatanjalix)
+[r/chelseathe](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/chelseathe)
 [r/sunstokes](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/sunstokes)
 [r/VoreWorld2025](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/VoreWorld2025)
-[r/agusslepera3](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/agusslepera3)
-[r/Eli_Maciel](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Eli_Maciel)
-[r/karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/karinakurzawapics)
-[r/NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/NianaSexy)
+[r/agusslepera3](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/agusslepera3)
+[r/Eli_Maciel](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Eli_Maciel)
+[r/karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/karinakurzawapics)
+[r/NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NianaSexy)
 [r/socippo](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/socippo)
-[r/zhenyak](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/zhenyak)
+[r/zhenyak](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/zhenyak)
 [r/La_Putita_De_Alexity](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/La_Putita_De_Alexity)
 [r/AlexityForever](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityForever)
 [r/AlexityWorld](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityWorld)
@@ -19,151 +19,150 @@ Cat 3 Megathread 10/4/2025 (Froggie)
 
 u/alloioscc
 
-[dooshartpeepee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/dooshartpeepee)
+[dooshartpeepee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/dooshartpeepee)
 
 u/AngryDesertPhrog
 
-[polkiarpovafamilly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Polkiarpovafamilly)
-[txunamy_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/txunamy_)
-[badmomsandworsemen](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/badmomsandworsemen)
-[Iv4tori](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Iv4tori)
-[CleoTarna](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/CleoTarna)
-[Tatumbtickred](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Tatumbtickred)
+[polkiarpovafamilly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Polkiarpovafamilly)
+[txunamy_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/txunamy_)
+[badmomsandworsemen](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/badmomsandworsemen)
+[Iv4tori](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Iv4tori)
+[CleoTarna](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CleoTarna)
+[Tatumbtickred](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Tatumbtickred)
 
 Updated
 [Socippo](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/socippo)
-[NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/NianaSexy)
-[Karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/karinakurzawapics)
+[NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NianaSexy)
+[Karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/karinakurzawapics)
 
 u/BananaSpider55
 
-[DPH](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/DPH)
+[DPH](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/DPH)
 
 Coolgame01nz
 
-[Rapist_Fan_Club](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Rapist_Fan_Club)
+[Rapist_Fan_Club](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Rapist_Fan_Club)
 
 CrystalizedBloodd
 
-[GeometryDashFartPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/GeometryDashFartPorn)
+[GeometryDashFartPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/GeometryDashFartPorn)
 
 u/Eisner_Hero
 
-[SmallAndCute](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/SmallAndCute)
-[FatePrismalllya](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/FatePrismalllya)
+[SmallAndCute](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/SmallAndCute)
+[FatePrismalllya](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/FatePrismalllya)
 
 u/EpicureanAtom
 
-[Previous Reports](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Reporters/EpicureanAtom) 
-[Full Reports](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/1/Personal+Reports)
+[Previous Reports](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Reporters/EpicureanAtom) (Some elaborated on in the Megathread by Froggie, Recker working on the others).
 
 u/flashkiller01
 
-[lilly_katchman and the subreddits RaeganRevordVERSE, raeganrevordmissy and raeganrevord20](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/4subs)
-[yosoyanix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/yosoyanix)
-[ladyabril16](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/ladyabril16)
-[tanianicolechavez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/tanianicolechavez)
-[Dafne_Vicente]()
-[naiararepiso](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/naiararepiso)
-[martina_lucena____](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/martina_lucena____)
-[domelipa_bikini](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/domelipa_bikini)
-[delfina_Suaaarez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/delfina_Suaaarez)
-[fer_sasse](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/fer_sasse)
-[bellaalbaneseee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/bellaalbaneseee)
+[lilly_katchman and the subreddits RaeganRevordVERSE, raeganrevordmissy and raeganrevord20](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/4subs)
+[yosoyanix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/yosoyanix)
+[ladyabril16](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ladyabril16)
+[tanianicolechavez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/tanianicolechavez)
+[Dafne_Vicente](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Dafne_Vicente) 
+[naiararepiso](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/naiararepiso)
+[martina_lucena____](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/martina_lucena____)
+[domelipa_bikini](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/domelipa_bikini)
+[delfina_Suaaarez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/delfina_Suaaarez)
+[fer_sasse](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/fer_sasse)
+[bellaalbaneseee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/bellaalbaneseee)
 
 u/godlys575
 
-[loudhousedark](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/loudhousedark)
+[loudhousedark](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/loudhousedark)
 [r/OwlHouseAfterDark](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Dives/OwlHouseDark)
 
 u/Guby_Ney
 
-[ariancitaaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/ariancitaaaa)
-[silvanarebolloo_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/silvanarebolloo_)
-[ameliawucrzy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/ameliawucrzy)
+[ariancitaaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ariancitaaaa)
+[silvanarebolloo_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/silvanarebolloo_)
+[ameliawucrzy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ameliawucrzy)
 
 u/JYANoob
 
-[DolphinPussyJelly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/DolphinPussyJelly)
+[DolphinPussyJelly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/DolphinPussyJelly)
 
 u/may0boi
 
-[cocoquinn141](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/cocoquinn141)
+[cocoquinn141](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/cocoquinn141)
 
 u/phager76
 
-[watchpeopledie8](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/phager76)
-[CoasterBoobs](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/CoasterBoobs)
+[watchpeopledie8](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/phager76)
+[CoasterBoobs](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CoasterBoobs)
 
 u/QueenSquidly14 (former subdiver)
 
-[selfharmfreshly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/selfharmfreshly)
+[selfharmfreshly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/selfharmfreshly)
 
 u/Remarkable-Cow-6491
 
 [usedandabusedteens, FuckToyfactory, CravingBadMan, FemaleInferiorityCap](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/usedandabusedteens,_FuckToyfactory,_CravingBadMan,_FemaleInferiorityCap)
-[Baddies_net](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Baddies_net)
+[Baddies_net](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Baddies_net)
 
 u/Salty-City-7187
 
-[Boptoonz](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Boptoonz)
+[Boptoonz](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Boptoonz)
 
 u/Six__13_
 
-[Bleach_Hentai](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Bleach_Hentai)
-[limbless](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/limbless)
+[Bleach_Hentai](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Bleach_Hentai)
+[limbless](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/limbless)
 
 u/Skbbc
 
-[salishmatter123](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/salishmatter123)
+[salishmatter123](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/salishmatter123)
 
 u/SluttyMcSlutthefirst
 
-[RiskyPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/RiskyPorn)
-[usedandabusedteens](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/usedandabusedteens)
-[FilipnosAgainstChina](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/FilipnosAgainstChina)
+[RiskyPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/RiskyPorn)
+[usedandabusedteens](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/usedandabusedteens)
+[FilipnosAgainstChina](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/FilipnosAgainstChina)
 
 u/switch_case
 
-[ariancitaaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/ariancitaaaaSC)
-[aasaliraniiizahide](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/aasaliraniiizahide)
-[araara](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/araara)
-[loudhousedark](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/loudhousedarkSC)
-[ameliawucrzy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/ameliawucrzy)
+[ariancitaaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ariancitaaaaSC)
+[aasaliraniiizahide](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/aasaliraniiizahide)
+[araara](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/araara)
+[loudhousedark](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/loudhousedarkSC)
+[ameliawucrzy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ameliawucrzy)
 [martinita_lucena](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/martinita_lucena)
-[boptoonz](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/boptoonzSC)
-[foodinbutt](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/foodinbutt)
-[duolingopornr34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/duolingopornr34)
-[skibiditoiletrule34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/skibiditoiletrule34)
+[boptoonz](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/boptoonzSC)
+[foodinbutt](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/foodinbutt)
+[duolingopornr34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/duolingopornr34)
+[skibiditoiletrule34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/skibiditoiletrule34)
 
 u/ThatOneNutshell
 
-[lilliefuck](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/lilliefuck)
-[MomSonIncest](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/MomSonIncest)
-[tourturegalaxy_fanclub](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/tourturegalaxy_fanclub)
+[lilliefuck](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/lilliefuck)
+[MomSonIncest](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/MomSonIncest)
+[tourturegalaxy_fanclub](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/tourturegalaxy_fanclub)
 
 u/ThomasOG73
 
-[RiskyPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/RiskyPornT)
-[AlexityForever, AlexityWorld, La_Putita_De_Alexity](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/3Subs)
-[aasaliraniiizahide](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/aasaliraniiizahide)
-[Mteensx](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/Mteensx)
-[bopptok](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/bopptok)
-[5169FL](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/5169FL)
-[models](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/models)
-[NatPress](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/NatPress)
-[cringe_porn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/cringe_porn)
-[PornStarHQ](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/PornStarHQ)
-[dirtypussy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/dirtypussy)
-[araara](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/araaraT)
-[silvanarebolloo_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/silvanarebolloo_T)
-[StackedPettanko](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/StackedPettanko)
-[littlecutefem](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/littlecutefem)
+[RiskyPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/RiskyPornT)
+[AlexityForever, AlexityWorld, La_Putita_De_Alexity](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/3Subs)
+[aasaliraniiizahide](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/aasaliraniiizahide)
+[Mteensx](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Mteensx)
+[bopptok](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Suba/bopptok)
+[5169FL](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/5169FL)
+[models](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/models)
+[NatPress](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NatPress)
+[cringe_porn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/cringe_porn)
+[PornStarHQ](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/PornStarHQ)
+[dirtypussy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/dirtypussy)
+[araara](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/araaraT)
+[silvanarebolloo_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/silvanarebolloo_T)
+[StackedPettanko](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/StackedPettanko)
+[littlecutefem](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/littlecutefem)
 
 Anonymous
 
-[incestolegendas](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/incestolegendas)
-[zangisex](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs2/zangisex)
+[incestolegendas](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/incestolegendas)
+[zangisex](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/zangisex)
 [revengepornn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/revengepornn)
 
 garan00b
