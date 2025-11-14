@@ -11,8 +11,7 @@ General:
 
 Bookkeeper
 
-I am the Bookkeeper
-[Personal reports](/Reddit/Personal+Reports)                                                     
+I am the Bookkeeper                                              
 
 Lieutenant                                                                
 
