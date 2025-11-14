@@ -1,0 +1,1 @@
+Fire at will! Show no mercy!
