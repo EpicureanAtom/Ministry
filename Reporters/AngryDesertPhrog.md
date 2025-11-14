@@ -1,12 +1,25 @@
-Subreddit: r/polkiarpovafamilly
+[r/teenfeedersandfeedees](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/teenfeedersandfeedees)
+[r/ayatanjalix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ayatanjalix)
+[r/chelseathe](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/chelseathe)
+[r/sunstokes](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/sunstokes)
+[r/VoreWorld2025](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/VoreWorld2025)
+[r/agusslepera3](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/agusslepera3)
+[r/Eli_Maciel](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Eli_Maciel)
+[r/karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/karinakurzawapics)
+[r/NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NianaSexy)
+[r/socippo](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/socippo)
+[r/zhenyak](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/zhenyak)
+[r/La_Putita_De_Alexity](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/La_Putita_De_Alexity)
+[r/AlexityForever](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityForever)
+[r/AlexityWorld](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityWorld)
+[r/Ariancitaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Ariancitaaa)
+[r/LuisanaLopilato2002_2](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/LuisanaLopilato2002_2)
 
-u/AngryDesertPhrog reporting back from r/polkiarpovafamilly
+AngryDesertPhrog
 
-The individual Angelina Polikarpova is 18, she just turned 18 in may so some images may be fine
-
-With that many videos of her are from when she was very much a minor. 
-The commenters seem aware of this, I saw one specific comment sexualizing her braces… 
-
-Have at ‘em folks, this is a level 3
-
-Remember to put in your reports that images on the sub contain pictures of the actress as a minor, this might help expedite banning.
+[polkiarpovafamilly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Polkiarpovafamilly)
+[txunamy_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/txunamy_)
+[badmomsandworsemen](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/badmomsandworsemen)
+[Iv4tori](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Iv4tori)
+[CleoTarna](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CleoTarna)
+[Tatumbtickred](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Tatumbtickred)
