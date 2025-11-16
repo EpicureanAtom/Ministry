@@ -1,104 +1,114 @@
-Sorted Alphabetically by Subreddit
+Category 3 subreddits are direct violations of Reddit’s TOS and are often illegal.
+Our duty is to report responsibly.
 
-[5169FL](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/5169FL)
-[Aalexisryanxxx](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Aalexisryanxxx)
-[aasaliraniiizahide](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/aasaliraniiizahide)
-[agusslepera3](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/agusslepera3)
-[AlexityForever](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityForever)
-[AlexityWorld](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityWorld)
-[ameliawucrzy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ameliawucrzy)
-[araara](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/araara)
-[Ariancitaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Ariancitaaa)
-[alexisryanxxx](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/alexisryanxxx)
-[ariancitaaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ariancitaaaa)
-[ayatanjalix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ayatanjalix)
-[badmomsandworsemen](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/badmomsandworsemen)
-[Baddies_net](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Baddies_net)
-[bellaalbaneseee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/bellaalbaneseee)
-[Bleach_Hentai](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Bleach_Hentai)
-[bopptok](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/bopptok)
-[boptoonz](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/boptoonz)
-[boptoonzSC](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/boptoonzSC)
-[Chelsea_lascher_nsfw](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Chelsea_lascher_nsfw)
-[chelseathe](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/chelseathe)
-[CleoTarna](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CleoTarna)
-[cocoquinn141](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/cocoquinn141)
-[CoasterBoobs](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CoasterBoobs)
+These have already been investigated and are confirmed TOS violations. Concerned redditors, and people passing through are urged to fill out a report or two to help make Reddit safer.
+
+**Reporting Protocol**
+Go to Reddit’s [report page](https://www.reddit.com/report).
+
+Cat 1
+
+[Bleach_Hentai](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Bleach_Hentai)  
+[dirtypussy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/dirtypussy)  
+[CoasterBoobs](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CoasterBoobs)  
 [cringe_porn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/cringe_porn)
-[CrystalizedBloodd](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CrystalizedBloodd)
-[Dafne_Vicente](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Dafne_Vicente)
-[delfina_Suaaarez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/delfina_Suaaarez)
-[dirtypussy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/dirtypussy)
-[dooshartpeepee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/dooshartpeepee)
-[domelipa_bikini](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/domelipa_bikini)
-[duolingopornr34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/duolingopornr34)
-[Eli_Maciel](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Eli_Maciel)
-[Elizabeth_Hawaiiiiii](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Elizabeth_Hawaiiiiii)
-[fer_sasse](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/fer_sasse)
-[FatePrismalllya](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/FatePrismalllya)
-[FilipnosAgainstChina](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/FilipnosAgainstChina)
-[foodinbutt](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/foodinbutt)
-[GeometryDashFartPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/GeometryDashFartPorn)
-[incestolegendas](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/incestolegendas)
-[IncestIsNormal](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/IncestIsNormal)
-[its_mias_Gonazalez_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/its_mias_Gonazalez_)
-[Iv4tori](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Iv4tori)
-[karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/karinakurzawapics)
-[Karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Karinakurzawapics)
-[ladyabril16](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ladyabril16)
-[Latina_babez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Latina_babez)
-[La_Putita_De_Alexity](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/La_Putita_De_Alexity)
-[limbless](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/limbless)
-[lilly_katchman](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/lilly_katchman)
-[littlecutefem](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/littlecutefem)
-[loudhousedark](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/loudhousedark)
-[loudhousedarkSC](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/loudhousedarkSC)
-[Luisana_lopilato_2002](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Luisana_lopilato_2002)
-[LuisanaLopilato2002_2](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/LuisanaLopilato2002_2)
-[martina_lucena____](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/martina_lucena____)
-[martinita_lucena](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/martinita_lucena)
-[Mebiamu](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Mebiamu)
-[Mireille_campos](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Mireille_campos)
-[models](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/models)
-[MomSonIncest](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/MomSonIncest)
-[Mteensx](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Mteensx)
-[naiararepiso](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/naiararepiso)
-[NatPress](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NatPress)
-[NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NianaSexy)
-[polkiarpovafamilly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/polkiarpovafamilly)
-[PornStarHQ](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/PornStarHQ)
-[PrincessAmeliaTribute](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/PrincessAmeliaTribute)
-[Previous Reports](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Previous%20Reports)
-[Rapist_Fan_Club](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Rapist_Fan_Club)
-[RaeganRevordVERSE](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/RaeganRevordVERSE)
-[raeganrevordmissy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/raeganrevordmissy)
-[raeganrevord20](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/raeganrevord20)
-[revengepornn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/revengepornn)
-[RiskyPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/RiskyPorn)
-[RiskyPornT](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/RiskyPornT)
-[salishmatter123](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/salishmatter123)
-[SalishSubreddits](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/SalishSubreddits)
-[selfharmfreshly](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/selfharmfreshly)
-[silvanarebolloo_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/silvanarebolloo_)
-[silvanarebolloo_T](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/silvanarebolloo_T)
-[skibiditoiletrule34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/skibiditoiletrule34)
-[SmallAndCute](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/SmallAndCute)
-[socippo](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/socippo)
-[StackedPettanko](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/StackedPettanko)
-[sun stokes](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/sun%20stokes)
-[tania nicole chavez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/tania%20nicole%20chavez)
-[Tatumbtickred](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Tatumbtickred)
-[teenfeedersandfeedees](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/teenfeedersandfeedees)
-[TelegramGirlss_Nsfw](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/TelegramGirlss_Nsfw)
-[ThomasExtras…](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ThomasExtras%E2%80%A6)
-[tourturegalaxy_fanclub](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/tourturegalaxy_fanclub)
-[txunamy_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/txunamy_)
-[usedandabusedteens](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/usedandabusedteens)
-[VoreWorld2025](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/VoreWorld2025)
-[watchpeopledie8](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/watchpeopledie8)
-[yosoyanix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/yosoyanix)
-[zangisex](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/zangisex)
-[zhenyak](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/zhenyak)
+[dooshartpeepee](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/dooshartpeepee)  
+[domelipa_bikini](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/domelipa_bikini)  
+[duolingopornr34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/duolingopornr34)  
+[fer_sasse](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/fer_sasse)  
+[foodinbutt](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/foodinbutt)  
+[GeometryDashFartPorn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/GeometryDashFartPorn)  
+[PornStarHQ](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/PornStarHQ)  
+[skibiditoiletrule34](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/skibiditoiletrule34)  
+
+Cat 2
+
+[araara](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/araara)  
+[incestolegendas](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/incestolegendas)  
+[Mireille_campos](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Mireille_campos)  
+[MomSonIncest](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/MomSonIncest)  
+[Rapist_Fan_Club](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Rapist_Fan_Club)  
+[revengepornn](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/revengepornn)  
+[TelegramGirlss_Nsfw](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/TelegramGirlss_Nsfw)  
+[usedandabusedteens](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/usedandabusedteens)  
+[watchpeopledie8](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/watchpeopledie8)  
+
+
+Cat 3
+
+Full reports
+
+• [ameliawucrzy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ameliawucrzy)
+
+• [models](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/models)  
+
+• [SalishSubreddits](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/SalishSubreddits)
+
+• [alexisryanxxx](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/alexisryanxxx)
+
+• [r/ayatanjalix](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/ayatanjalix)
+
+• [r/chelseathe](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/chelseathe)
+
+• [r/Eli_Maciel](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Eli_Maciel)
+
+• [r/karinakurzawapics](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/karinakurzawapics)
+
+• [r/NianaSexy](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/NianaSexy)
+
+• [r/zhenyak](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/zhenyak)
+
+• [r/LuisanaLopilato2002_2](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/LuisanaLopilato2002_2)
+
+• [txunamy_](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/txunamy_)
+
+• [Chelsea_lascher_nsfw](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Chelsea_lascher_nsfw)  
+
+• [CleoTarna](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/CleoTarna)
+
+• [badmomsandworsemen](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/badmomsandworsemen)
+
+• [Tatumbtickred](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Tatumbtickred)
+
+• [martina_lucena____](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/martina_lucena____)  
+
+• [martinita_lucena](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/martinita_lucena)  
+
+• [Latina_babez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Latina_babez)  .
+
+• [lilly_katchman](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/lilly_katchman)  
+
+• [Luisana_lopilato_2002](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Luisana_lopilato_2002)  
+
+• [TaniaNicolchavez](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/s/TaniaNicolchavez)
+
+Needs elaboration
+
+• r/salishmatter20 - Minor abuse, predatory behaviour
+
+• r/SalishMatter_56 - Minor abuse, predatory behaviour
+
+• r/TeenDreaming - Minor abuse, predatory behaviour
+
+• r/AlanaKern__ - (Person is 18 now butpictures were from when she was a minor)
+
+• r/pejaanne - Minor abuse, predatory behaviour
+
+• r/DeKrasselMaisie - (Person is 18 now but pictures were from when she was a minor)
+
+• r/twinkletoesnata - Minor abuse, predatory behaviour
+
+• r/its_sandy13 - Minor abuse, predatory behaviour
+
+• r/itssandy13 - Minor abuse, predatory behaviour
+
+• r/ava__kolker - (Person is 18 now but pictures were from when she was a minor)
+
+• r/nataliegracemodeling - Minor abuse, predatory behaviour
+
+• r/OldSchoolEmmaWatson - Minor abuse, predatory behaviour
+
+• r/NatalieGraceOfficiall - Minor abuse, predatory behaviour
 
 Sorted Aphabetically by Reporter
 
@@ -127,3 +137,96 @@ Sorted Aphabetically by Reporter
 [u/switch_case](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Users/switch_case)
 [u/ThatOneNutshell](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Users/ThatOneNutshell)
 [u/ThomasOG73](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Users/ThomasOG73)
+
+
+Can't view
+
+r/boptoonzSC
+r/cocoquinn141
+r/tourturegalaxy_fanclub
+r/ThomasExtras
+r/polkiarpovafamilly
+r/Mebiamu
+r/its_mias_Gonazalez_
+r/FatePrismalllya
+
+
+Banned
+
+Full Reports
+
+- [r/AlexityForever](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityForever)
+- [r/AlexityWorld](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/AlexityWorld)
+- [r/agusslepera3](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/agusslepera3)
+- [r/Ariancitaaa](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/Ariancitaaa)
+- [r/La_Putita_De_Alexity](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/La_Putita_De_Alexity)
+- [r/socippo](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/socippo)
+- [r/sunstokes](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/sunstokes)
+- [r/teenfeedersandfeedees](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/teenfeedersandfeedees)
+- [r/VoreWorld2025](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/VoreWorld2025)
+
+Not elaborated on
+
+- r/5169FL
+- r/aasaliraniiizahide
+- r/agusslepera3
+- r/Animalpenis_
+- r/Anfisaria
+- r/ariancitaaaa
+- r/ayatanjalix
+- r/badmomsandworsemen
+- r/bellaalbaneseee
+- r/Boptoonz
+- r/brisaturk
+- r/chelsea_lascher_hot
+- r/Chelsealascher_nsfw
+- r/chelseathe
+- r/CleoTarna
+- r/CreamTheRabbitRefuge
+- r/cuteandfunnyuwu
+- r/Dafne_Vicente
+- r/delfina_Suaaarez
+- r/domelipa_bikini
+- r/Eli_Maciel
+- r/Elizabeth_Hawaiiiiii
+- r/EverAndersonFan
+- r/EverGaboAnderson
+- r/goreandother
+- r/IncestIsNormal
+- r/IreneSilva
+- r/Iv4tori
+- r/karinakurzawapics
+- r/ladyabril16
+- r/limbless
+- r/littlecutefem
+- r/loudhousedark
+- r/loudhousegirlsNSFW
+- r/LuisanaLopilato2002_2
+- r/martina_lucena____
+- r/martinalucena13
+- r/martinita_lucena
+- r/martinitarol
+- r/Martina_y_Irene
+- r/models
+- r/Mteensx
+- r/NianaSexy
+- r/polikarpovafamilly
+- r/RaeganRevordVERSE
+- r/raeganrevord20
+- r/raeganrevordmissy
+- r/reaganrevordmissy
+- r/RiskyPorn
+- r/renatajarquiin
+- r/salish_matter_23_4
+- r/salishmatter123
+- r/salishmatterisfit
+- r/SalishMatter12
+- r/SalishMatter18
+- r/SalishMatterFan
+- r/SalishMatterFP
+- r/selfharmfreshly
+- r/SmallAndCute
+- r/tanianicolechavez
+- r/Tessatttumbles
+- r/zangisex
+- r/zhenyak
