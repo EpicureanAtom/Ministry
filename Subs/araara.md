@@ -9,3 +9,5 @@ It's also only fictional. Cartoon and anime drawn characters doing the things; s
 I dont see anything breaking ToS as far as I was able to see.
 
 Requesting Subdivers to further verify.
+
+[Other report](https://my.flowershow.app/@EpicureanAtom/RedditObservatory/Subs/araaraT)
