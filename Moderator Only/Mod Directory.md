@@ -1,11 +1,8 @@
-[Normal Directory](/Directory/Directory)                 
-
-[High Command Log](/Log/Mod+Mail)                                               
+[Normal Directory](/Directory/Directory)                                                                      
 [Name registry](/Ministryofredditing/Users )                                                          
-[Discord](/Discord/Discord+Directory)
 
 [Users](/Ministryofredditing/Users)                                                                         
-[Dead Accounts](/Dead/DeadAccounts)                                                        
+[Dead Accounts](/Dead/Dead+Accounts)                                                      
 [Inactive Accounts](/Dead/Inactive)                                                   
 [Rule Violations](/Dead/Rule+Violation)                                                        
 
