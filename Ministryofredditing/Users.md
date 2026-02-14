@@ -1,5 +1,4 @@
 [Reporters](/Dive/Dives)  (incomplete)                                                               
-
 Prime                                                                   
 
 [Crabtickler9000](/Users/Crabtickler9000) (Former Prime and creator of the Ministry)                                                        
@@ -67,7 +66,7 @@ Far-dog
 [Ronevvi_Kitty](/Users/Ronevvi_Kitty) ([Inactive](/Dead/Inactive))                                         
 [Fickle-Cress-4116](/Users/Fickle-Cress-4116) ([Inactive](/Dead/Inactive))                                 
 [QuixoticArbiter](/Users/QuixoticArbiter)                                                        
-[garan00b](/Users/garan00 b)                                                                  
+[garan00b](/Users/garan00b)                                                                  
 ieatfrogs                                                                   
 
 Archon                                                                      
