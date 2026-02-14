@@ -1,7 +1,5 @@
 [Normal Directory](/Directory/Directory)                                                                      
-[Name registry](/Ministryofredditing/Users )                                                          
-
-[Users](/Ministryofredditing/Users)                                                                         
+[Name registry](/Ministryofredditing/Users )                                                                                                                                  
 [Dead Accounts](/Dead/Dead+Accounts)                                                      
 [Inactive Accounts](/Dead/Inactive)                                                   
 [Rule Violations](/Dead/Rule+Violation)                                                        
